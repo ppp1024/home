@@ -1,13 +1,13 @@
 # 爱草莓 最新地址
 爱草莓最新网址发布
 
-[https://www.acm101.com](https://www.acm101.com)
+[https://www.acm1024.com](https://www.acm1024.com)
 
-
+[https://acm1024.com](https://acm1024.com)
 
 二維碼
 
-[<img src="http://thyrsi.com/t6/387/1539680132x-1566688526.png">](http://thyrsi.com/t6/387/1539680132x-1566688526.png)
+[<img src="http://qr.api.cli.im/qr?data=https%253A%252F%252Fwww.acm1024.com&level=H&transparent=false&bgcolor=%23ffffff&forecolor=%23000000&blockpixel=12&marginblock=1&logourl=&size=260&kid=cliim&key=14bf17f5e2f25857e776bfce29ed7ea1">](http://qr.api.cli.im/qr?data=https%253A%252F%252Fwww.acm1024.com&level=H&transparent=false&bgcolor=%23ffffff&forecolor=%23000000&blockpixel=12&marginblock=1&logourl=&size=260&kid=cliim&key=14bf17f5e2f25857e776bfce29ed7ea1)
 
 
 
